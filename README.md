@@ -1,4 +1,4 @@
-### Yu Guo (郭彧) 👋
+### Yu Guo (郭彧)
 
 </div>
 <p align="center"> 
